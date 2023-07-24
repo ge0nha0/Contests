@@ -37,6 +37,7 @@
 
 5. 현장 답사 진행
 
+<img width="481" alt="image" src="https://github.com/ge0nha0/Contests/assets/100743813/a2ef941f-f61e-4eb7-93fb-0785636b48ab">
 <img width="372" alt="image" src="https://github.com/ge0nha0/Contests/assets/100743813/667d6951-2167-4cc5-b1c4-18ecaa73ff94">
 
 
